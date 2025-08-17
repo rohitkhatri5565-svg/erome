@@ -19,7 +19,7 @@ Por que o Erome é tão popular
 
 Onde usar o Erome de forma segura
 
-👉 Saiba mais aqui: [myerome.com.br]
+👉 Saiba mais aqui: [[myerome](https://myerome.com.br/)]
 
 ## Keywords for SEO
 
