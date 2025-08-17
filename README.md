@@ -19,8 +19,8 @@ Por que o Erome é tão popular
 
 Onde usar o Erome de forma segura
 
-👉 Saiba mais aqui: []
+👉 Saiba mais aqui: [myerome.com.br]
 
 ## Keywords for SEO
 
-erome, erome mc mirella, erome novinha, erome vazados, mc mirella erome, erome mc mirela, erome.com, eromes.com, erome videos, erome com    
+erome, erome mc mirella, erome novinha, erome vazados, mc mirella erome, erome mc mirela, erome.com, eromes.com, erome videos, erome com. 
